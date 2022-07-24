@@ -1,0 +1,1 @@
+Due to copyright reasons I cannot provide the used images here. Luckily I happened to come across a website that may or may not be hosting the needed images. Run the script to download.
